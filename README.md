@@ -1,0 +1,1 @@
+# Hava-Sicakli-i-ile-ilgili-etkinlik--nerme
